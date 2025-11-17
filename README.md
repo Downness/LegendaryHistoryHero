@@ -1,2 +1,9 @@
-# LegendaryHistoryHero
-Book about the legendary history hero
+
+# Poems of a legendary history hero and other poems
+
+About:
+Augusto Meliyan is born in Serbia in 1992, under a different name… His origins and history begin 8.000 years ago when he was traveling with his nation nearby a deserted island St. Lawrence where he did settle down, and completely changed… Then he began belonging to the new nation named Aukreliyeno…
+He was a hero in the medieval Balkan war when it was under the Ottoman occupation and he was fighting all the way through the state, undefeated…
+Now his family is living all across the globe and he has even returned to his home country Mexico where from he began his traveling 13.000 years ago…
+
+Star and Support!
